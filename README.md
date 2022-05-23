@@ -1,8 +1,8 @@
 Hi, gua @kapanmandi
 
 Saat ini gua mahasiswa semester 6 prodi Teknologi Informasi
-gua suka nge design bikin skecth dan yang lain2.
-dan sekarang gua sedang tertarik ngedevelop aplikasi substratum gua sendiri kalian bisa liat disini t.me/lonertheme
+gua suka nge design, bikin skecth, dan yang lain2 yang berhubungan dengan desain.
+dan sekarang gua sedang tertarik ngedevelop aplikasi substratum gua sendiri kalian bisa liat disini https://t.me/cheesetheme
 
 kalian bisa follow gua di twitter @kapanmaumandi
 
